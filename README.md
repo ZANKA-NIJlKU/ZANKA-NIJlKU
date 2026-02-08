@@ -8,6 +8,12 @@
   ★ . ★ . ★
   ![](https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_2666353532240618.gif)
 
+  [admin main](https://github.com/ethereal-fatality)
+  
+  < ---『♡』--- >
+  
+  [sign ata](https://assistaff-wielder.atabook.org/)
+
 <!--
 **ZANKA-NIJlKU/ZANKA-NIJlKU** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
