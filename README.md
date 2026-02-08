@@ -1,8 +1,10 @@
 <div align=center>
 
   ![.](https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_2666225496048302.jpg)
+  
   ★ . ★ . ★
   ![](https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_2666424956981853.gif)
+  
   ★ . ★ . ★
   ![](https://file.garden/aSPtuZ-Qjze7pe-Y/Tumblr_l_2666353532240618.gif)
 
